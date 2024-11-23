@@ -1,4 +1,4 @@
-# Nice to meet you! I'm Angel - [**Programmer**](https://github.com/Ajimenez-p) & [**IT Professional**](https://www.linkedin.com/in/angel-jimenez-23641b335)
+# Nice to meet you! I'm Angel - an [**IT Professional**](https://www.linkedin.com/in/angel-jimenez-23641b335)
 
 ## 🔒 Cybersecurity Projects
 
